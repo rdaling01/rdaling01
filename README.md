@@ -1,7 +1,5 @@
 - 👋 Hi, I’m @rdaling01
 - 👀 I’m interested in alot of things
-- 🌱 I’m currently learning html and ccs
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me my gmail account
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: i love giraffs
